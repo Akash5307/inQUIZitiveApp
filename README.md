@@ -1,4 +1,4 @@
-# inQUIZisitive
+# inQUIZitive
 Youtube Video Link--https://www.youtube.com/watch?v=QiNOcstLEMA
 
 ![WhatsApp Image 2023-11-25 at 7 52 53 AM](https://github.com/Akash5307/inQUIZitiveApp/assets/115076719/331d0a91-61f6-4ce9-bff1-1104c70187fa)
